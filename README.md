@@ -1,4 +1,4 @@
-# Felipe Rafael Araújo 🧑‍💻
+# Felipe Rafael Araújo 👨🏽‍💻
 
 Olá 👋 Bem-Vindo ao meu perfil.
 
